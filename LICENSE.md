@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Todoist for macOS tool with exclusive Tool for Todoist for macOS - reminders and task automation. Featuring reminders and task automation, it's the best choice
 
 
 
